@@ -1,0 +1,1 @@
+# revlon-lipstick-pricing
